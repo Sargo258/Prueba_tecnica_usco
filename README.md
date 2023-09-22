@@ -1,1 +1,0 @@
-# Prueba_tecnica_usco
